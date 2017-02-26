@@ -13,3 +13,6 @@
 
 ## Week 4 
 - Video's (Playlist) - [Youtube](https://www.youtube.com/playlist?list=PLJ6vobRc0TSLz7HBrqwFAEUdkLVprw7Zi)
+
+## Week 5 
+- Video's (Playlist) - [Youtube](https://www.youtube.com/playlist?list=PLWKjhJtqVAbmoiNlqLJg1gxEjEuKHHcn_)
